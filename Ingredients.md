@@ -1,3 +1,5 @@
+# INGREDIENTS
+
 Chickpeas (kabuli chana) soaked overnight and drained 1 cup
 
 Tea bags 2
